@@ -13,12 +13,6 @@
 
 
 
-
-
-
-
-
-
 <img src="https://st3.depositphotos.com/3382541/13326/v/600/depositphotos_133260890-stock-illustration-programmer-sitting-on-big-laptop.jpg">
 
 
